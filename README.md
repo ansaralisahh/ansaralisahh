@@ -10,4 +10,3 @@
 :💞️: I’m looking to collaborate on StartUp. </br>
 :shower: Fun fact: I'm astronomy lover</br>
 :mailbox: How to reach me: <a href="mailto:ansar@indiancreator.in">ansar@indiancreator.in</a>
-https://cdn-icons-png.flaticon.com/512/3037/3037366.png
